@@ -1,1 +1,0 @@
-Dzmitry Slizhou QA Engineer resume in .doc and PDF formats. 
